@@ -1,0 +1,1 @@
+# analiza_spektralna_w_ekonomii_i_finansach
